@@ -20,3 +20,14 @@ V Miami už se pěkně potíme. Systém vlaků a autobusů přehledný a cenově
 ------
 
 2 dny pokračujeme v přípravě lodi na vyplutí, nákupech... zdá se to nekonečné. Vedle nás přistává Emily E s kapitánem Travisem a jednomužnou posádkou na zkušené - Denverem. Američtí kluci jsou vřelí a rychle se seznamujeme a spřádáme plány společně, plavba ve dvou lodích bude bezpečnějsí a veselejší.
+
+Epilog
+------
+
+Tož tento deník již pravděpodobně nikdy nebude dokončen, neb jeho příběh jsem mezitím přebásnil zde:
+
+https://github.com/ins-pirat-ion/art/blob/master/Bahamy
+
+Enjoy!
+
+Gándhí
